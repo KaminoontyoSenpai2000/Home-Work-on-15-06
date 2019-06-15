@@ -1,2 +1,3 @@
 # Home-Work-on-15-06
-Me home work
+I have some problems - than i ask about it, thanks)
+
